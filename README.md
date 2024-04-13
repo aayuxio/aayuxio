@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aayuxio
 - 👀 I’m interested in hac#
-- 🌱 I’m currently learning español, arabic
+- 🌱 I’m currently learning español
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me t.me/aayuxio 
 - 😄 Pronouns: neet aspirant
